@@ -1,5 +1,5 @@
 ### JERSEY!! :D
-![polyam](https://redacted-coiner.ju.mp/assets/images/gallery37/ec67b60a_original.png?v=50dd0afe)
+![abro](https://redacted-coiner.ju.mp/assets/images/gallery37/ec67b60a_original.png?v=50dd0afe) ![agen](https://redacted-coiner.ju.mp/assets/images/gallery26/38e0ea16_original.png?v=50dd0afe) ![polyam]()
 
 
 > OCD + ADHD + AUTISM
