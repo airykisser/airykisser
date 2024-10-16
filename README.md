@@ -3,7 +3,9 @@
 
 
 > OCD, ADHD, AUTISM & DIAGNOSED DID ♾️🌈
+> 
 > PHYSICALLY & VISUALLY IMPAIRED 🦯
+> 
 > TAKEN BY A POLYCULE ❤️♾️
 > 
 
