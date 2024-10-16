@@ -1,4 +1,7 @@
 ### JERSEY!! :D
+![polyam](https://redacted-coiner.ju.mp/assets/images/gallery37/ec67b60a_original.png?v=50dd0afe)
+
+
 > OCD + ADHD + AUTISM
 > DX'D DID SYSTEM ^_^
 > TAKEN BY A POLYCULE
