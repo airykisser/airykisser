@@ -2,11 +2,9 @@
 ![abro](https://redacted-coiner.ju.mp/assets/images/gallery37/ec67b60a_original.png?v=50dd0afe) ![agen](https://redacted-coiner.ju.mp/assets/images/gallery26/38e0ea16_original.png?v=50dd0afe) ![polyam](https://redacted-coiner.ju.mp/assets/images/gallery44/80008511_original.png?v=50dd0afe)
 
 
-> OCD + ADHD + AUTISM
-> 
-> DX'D DID SYSTEM ^_^
-> 
-> TAKEN BY A POLYCULE
+> OCD, ADHD, AUTISM & DIAGNOSED DID ♾️🌈
+> PHYSICALLY & VISUALLY IMPAIRED 🦯
+> TAKEN BY A POLYCULE ❤️♾️
 > 
 
 
