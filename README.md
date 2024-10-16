@@ -1,1 +1,1 @@
-![]()
+![razor](https://64.media.tumblr.com/577da137d3b56baae25bdc6f0420a348/db2d72091633d579-91/s100x200/5b960d1ce2a28cd6f52259e00705fb165363ef0e.pnj)
